@@ -1,2 +1,2 @@
 # hello-world
-Complete newbie starting a projects and hoping for the best (fingers crossed)
+I am Dawen and this year will become a dawen year once I get going with this little project of mine 
